@@ -6,6 +6,10 @@ OldModz95
 
 <img align='right' src="https://media.giphy.com/media/WUlplcMpOCEmTGBtBW/giphy.gif" width="230">
 
+
+<img src="https://i.ibb.co/8MfJjPd/Px-Jg-EKHH6f.png" />
+<br /><br />
+
 ## 📞 Contact me
 
 [Discord](https://www.discord.gg/3t2568W)
